@@ -1,0 +1,2 @@
+# premium-metal-brake-001-metal-brake-building-sheet-b
+Tired of losing track of sheet metal specs, bend sequences, and custom orders across sticky notes and spreadsheets? Stop the chaos and bring every project under one roof.  The Metal Brake Building &amp; Sheet Bend Craft Studio is a Notion template designed to eliminate the clutter and confusion of running a metal brake workshop. It centralizes your pro
